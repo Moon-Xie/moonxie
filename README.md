@@ -1,4 +1,6 @@
 - 👋 Hi, I’m @Moon-Xie
+- 👀 I’m interested in hiking
+- 🌱 I’m currently learning ...
 - 👀 I’m interested in coding, dancing, and singing.
 - 🌱 I’m currently learning coding
 - 💞️ I’m looking to collaborate on ...
